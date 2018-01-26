@@ -1,0 +1,1 @@
+### Những thứ lưu trong này không nên chỉnh sửa, vì nó là tài liệu liên quan cho những bài viết chính
